@@ -15,4 +15,12 @@ Here are some ideas to get you started:
 -->
 ![young-adult-playing-futuristic-virtual-reality-game-generated-by-ai](https://github.com/SayyedSuheir/SayyedSuheir/assets/37812228/bd5deb73-ef89-4247-ac83-8e704968b796)
 
+### ABOUT MYSELF
+  ## BS in computer science form American university of culture and eduction
+  ## Have a passion for physical fitness and leading a healthy lifestyle 
+  ## Sports lover
+
+
+
+
 
